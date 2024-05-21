@@ -8,7 +8,7 @@ eu sou **ednamodasmodas!!**
 
 -sou editor de vídeos e thumbmaker para canais do youtube 🎥
 
-entre em contato!!!
+*entre em contato!!!*
 00001107210501sp@al.educacao.sp.gov.br
 
 **Ednamodasmodas manda um abraço**🥇
